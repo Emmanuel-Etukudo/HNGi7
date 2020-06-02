@@ -1,0 +1,1 @@
+My name is Emmanuel Etukudo. I am a native android developer. I hope to learn a lot from this HNGi7.
